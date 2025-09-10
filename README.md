@@ -1,4 +1,4 @@
-# Hey Everyone! I'm [Aravind Nudurupati](https://github.com/aravindnudurupati539) Hey Everyone! I'm Aravind Nudurupati <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
+# Hey Everyone! I'm [Aravind Nudurupati](https://github.com/aravindnudurupati539)<img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
 
 
 
