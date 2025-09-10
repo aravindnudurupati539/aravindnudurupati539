@@ -1,4 +1,5 @@
-# Hey Everyone! I'm [Aravind Nudurupati](https://github.com/aravindnudurupati539) <img src="https://github.com/himanshusharma89/himanshusharma89/blob/master/Hi.gif" width="25px">
+# Hey Everyone! I'm [Aravind Nudurupati](https://github.com/aravindnudurupati539) <img src="https://github.com/aravindnudurupati539/aravindnudurupati539/blob/main/wave.gif?raw=true" width="25px">
+
 
 
 # 💫 About Me:
